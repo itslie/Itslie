@@ -1,5 +1,6 @@
-## Hi there 👋
 
+![name](https://files.catbox.moe/rxtk7m.png) 
+-  𓎢𓎟  Its  lie  .   zeen ♡
 <!--
 **itslie/Itslie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
