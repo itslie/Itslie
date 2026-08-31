@@ -1,5 +1,6 @@
+![idk](https://files.catbox.moe/f1vokz.png) 
+I love my BFFFFFFFFFFFFFFFFFFF   my pretty husbandddd
 
-![name](https://files.catbox.moe/rxtk7m.png) 
--      𓎢𓎟  Its  lie  .   zeen ♡
+![wemmbu](https://files.catbox.moe/otjd9l.png)
  
  
